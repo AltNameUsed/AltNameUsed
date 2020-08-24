@@ -1,6 +1,7 @@
 # Hello! I'm AltNameUsed, speedcuber and just-for-fun programmer :).
 
-I'm on Discord! hang out with me there. AltDel#1762
+I'm on Discord! hang out with me there. AltDel#1762.
+
 I'm also on Reddit, u/AltNameUsed
 
 <!--
